@@ -1,5 +1,7 @@
+BUNDLE?=	bundle
+
 book.pdf: book.adoc
-	bundle exec asciidoctor-pdf $<
+	$(BUNDLE) exec asciidoctor-pdf $<
 
 .PHONY: clean
 clean:
