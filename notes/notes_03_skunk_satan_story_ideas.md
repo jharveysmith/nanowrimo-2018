@@ -70,10 +70,10 @@ annoyed (which is Bisky's issue).
 
 There is talk of a skunk nationalist/self-determination movement, but no one
 really has a concrete clue of what that entails except for the most hardcore
-or "crazy" members. Bisky attends a few meetings but isn't quite sure she
-agrees with the "crazies", the militant skunks who talk about "revolution"
-but never really do anything. Bisky does admit that a nation of all skunks
-is very appealing, though.
+or "crazy" members. (It's all in the founders's heads.) Bisky attends a few
+meetings but isn't quite sure she agrees with the "crazies", the militant
+skunks who talk about "revolution" but never really do anything. Bisky does
+admit that a nation of all skunks is very appealing, though.
 
 - **Mephitidae Liberation Movement**
 - **Mephitidae Nationalism** -- "we're not _skunks_, we're mephitidae!"
@@ -235,3 +235,49 @@ something like "Middle Kitten".  bisky is a fan of Middle Kitten. Hanalei is
 way more chill than bisky is. therefore, i need to make sure to write bisky
 as having a temper or just a problem with seemingly everything. she can't
 fit in!
+
+
+## bisky sailing alone
+
+It's a "Sunfish" style with a "lateen sail" mounted on an "unstayed" mast.
+
+    https://en.wikipedia.org/wiki/Sunfish_(sailboat) 
+
+she always does this alone. mostly because it really only fits one. but it's
+peaceful. maybe she thinks about drowning herself at one point. but she also
+has fond memories of halcyon days sailing with her mother on this thing.
+
+in general she has all these ways of calming down (sailing, model ships,
+cannabis, dancing) but none of them seem to work.
+
+maybe at a certain low point, she tries all of them at once? which is scary.
+
+need to make sure it's clear that sailing is very popular and central to
+Azuaverian identity. but Azuaverians come from everywhere, it's super
+diverse. bisky is just part of a minority.
+
+
+## confrontation
+
+the culmination of her interactions wiht the 'satanist' group is: she gets
+sufficiently pissed at someone and lets her natural/wild/feral instincts
+come out -- which means spraying someone who deserved it. and then she gets
+in serious trouble with it. like, with law enforcement.
+
+and this probably motivates her to actually drop the gorup altogether
+because she sees that change isn't really happening?
+
+
+## bisky's education
+
+she should change her major at some point. start out with something
+career-oriented or vocational, but then switches to sociology or something
+after being particularly invigorated at one lecture.
+
+
+## baking today
+
+Petrus was a baker. turns out skunks are just really really good at it. "one
+of the few things skunks are good for." i thought about stories of making
+cupcakes with my mom and i want to give that to bisky. tasting the batter
+before the goods go in the oven, haha.
