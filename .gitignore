@@ -3,4 +3,5 @@
 *.swp
 .bundle/**
 Gemfile.lock
+book.adoc
 vendor/**
